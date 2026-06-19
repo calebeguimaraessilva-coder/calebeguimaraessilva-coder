@@ -16,3 +16,4 @@ Qualquer dúvida entre em contato
 <a href="mailto:calebe.guimaraes.silva@escola.pr.gov.br" target="_blank"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"/></a>
 
 ![](https://media.tenor.com/2Sdmne5w8x0AAAAC/ishowspeed-ishowspeed-tongue.gif)
+![](https://media.tenor.com/TDAB8hp945AAAAAj/ishowspeed-i.gif)
